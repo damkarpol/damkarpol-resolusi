@@ -1,0 +1,2 @@
+# damkarpol-resolusi
+History damkarpol >>>
